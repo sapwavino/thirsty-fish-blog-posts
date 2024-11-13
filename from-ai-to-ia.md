@@ -1,6 +1,6 @@
 # From AI (Alien Intelligence) to IA (Intelligent Africa): Africa’s Last Shot at True Independence
 
-![Article Header Image](https://i.postimg.cc/MTVsZxKG/Impactful-Digital-Illustration-1.png)
+![Article Header Image](https://i.postimg.cc/rs2SfrTV/Simeon_Create_an_impactful_digital_illustration_for_a_blo_2f13856c-27f6-4b58-8598-a8b1c4459273.jpg)
 
 ```
 Now, before you side-eye me for calling AI "alien," hear me out. 
